@@ -1,1 +1,1 @@
-[Forecasting Bankruptcy Rates for Canada](https://github.com/bowema/Forecasting-Bankruptcy-Rates-for-Canada)
+[Project](https://github.com/bowema/Forecasting-Bankruptcy-Rates-for-Canada)
