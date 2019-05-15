@@ -1,0 +1,7 @@
+- Favourite books:
+  - Harry Potter
+  - Gone with the Wind
+  - Lust for Life
+  - Keigo Higashino's novels
+- Favourite food:
+  - All delicious food! Mainly asian food. 
